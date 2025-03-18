@@ -1,1 +1,1 @@
-Slides do Professor Bruno aKa Leon S. Kennedy. 💕
+Professor Bruno aKa Leon S. Kennedy. 💕
